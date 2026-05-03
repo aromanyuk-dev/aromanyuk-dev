@@ -8,4 +8,5 @@
 ## 📫 How to reach me
 
 - Connect with me on [LinkedIn](https://www.linkedin.com/in/alexeyromanyuk/) 👨🏻‍💻
+- Email: alexey.romanyuk1@gmail.com
 
